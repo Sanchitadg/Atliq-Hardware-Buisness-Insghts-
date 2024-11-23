@@ -1,1 +1,1 @@
-# Atliq-Hardware-Buisness-Insghts-
+# Atliq-Hardware-Buisness-Insights-
